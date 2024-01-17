@@ -1,7 +1,7 @@
 ![Image](sddefault.jpg)
 
 
-Tudod, hogy nincs bocsánat,
+Tudod, hogy nincs bocsánat,\n
 hiába hát a bánat.
 Légy, ami lennél: férfi.
 A fű kinő utánad.
