@@ -2,9 +2,8 @@
 
 
 Tudod, hogy nincs bocsánat,
-
-hiába hát a bánat.
-Légy, ami lennél: férfi.
+hiába hát a bánat.Légy,
+ami lennél: férfi.
 A fű kinő utánad.
 A bűn az nem lesz könnyebb,
 hiába hull a könnyed.
