@@ -2,6 +2,7 @@
 
 
 Tudod, hogy nincs bocsánat,
+
 hiába hát a bánat.
 Légy, ami lennél: férfi.
 A fű kinő utánad.
